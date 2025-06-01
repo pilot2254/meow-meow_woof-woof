@@ -1,1 +1,1 @@
-The assets here are not owned by me
+The image and audio assets here are not owned by me
